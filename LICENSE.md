@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://dencorporatesignify.github.io/math-for-brainrots-vn22/ ) |
  |---------------------|----------------------:|
 
 
