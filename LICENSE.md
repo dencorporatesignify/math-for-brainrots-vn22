@@ -1,4 +1,4 @@
-
+Experience math for brainrots like never before with math for brainrots automatic Script, the #1 Script. Includes auto-collect and fly for unbeatable
 
 
 
